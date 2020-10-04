@@ -5,11 +5,13 @@ Everything you need to know.
 
 ### Ingredients/Tools
 1. 1 cup of rice
+![One Cup Of Rice](https://i.pinimg.com/originals/7a/e7/88/7ae78885a655a3245ff20bf801911e69.jpg)
 2. 1 cup of filtered water
 1. Rice Cooker
 
 ### Steps
 1. **Wash** rice
+![Washing Rice](https://www.tastecooking.com/wp-content/uploads/2010/01/shutterstock_577172221-2000x1333.jpg)
 2. Put the rice and water in the _Rice Cooker_  (for dryer rice less water and vise versa)
 3. Press **start**
 4. **Eat**
