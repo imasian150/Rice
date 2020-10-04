@@ -40,8 +40,8 @@ Rice has been deduced to be used for consumption purposes in Yangtze River in Ch
 
 ## For more Information:
 #### History:
-[http://ricepedia.org/culture/history-of-rice-cultivation]
+[http://ricepedia.org/culture/history-of-rice-cultivation](url)
 #### Addition Instruction:
-[https://www.delish.com/cooking/a20089653/how-to-cook-rice/]
+[https://www.delish.com/cooking/a20089653/how-to-cook-rice/](url)
 #### More Types of Rice:
-[https://www.jessicagavin.com/types-of-rice/]
+[https://www.jessicagavin.com/types-of-rice/](url)
