@@ -17,7 +17,6 @@ Everything you need to know.
 3. Press **start**
 ![Rice Cooker](https://cdn.thewirecutter.com/wp-content/uploads/2018/07/ricecookers-2x1-9423.jpg)
 4. **Eat** the rice
-
 ![Eating Rice](https://jpninfo.com/wp-content/uploads/2017/09/man-eating-rice.jpg)
 
 ## History of Rice~
