@@ -16,7 +16,8 @@ Everything you need to know.
 ![Add Rice and Water](https://v1.nitrocdn.com/KQYMGOLIdXGmoAcyJsPOrQDKktgCbwtG/assets/static/optimized/rev-e80bad3/wp-content/uploads/2012/01/How-to-Cook-Rice-step-by-step-19-1.jpg)
 3. Press **start**
 ![Rice Cooker](https://cdn.thewirecutter.com/wp-content/uploads/2018/07/ricecookers-2x1-9423.jpg)
-4. **Eat**
+4. **Eat** the rice
+
 ![Eating Rice](https://jpninfo.com/wp-content/uploads/2017/09/man-eating-rice.jpg)
 
 ## History of Rice~
@@ -27,12 +28,16 @@ Rice has been deduced to be used for consumption purposes in Yangtze River in Ch
 ## Types of Rice~
 1. **Arborio Rice**
 - Very starchy, best for risotto dishes
+![Arborio Rice](https://images.ctfassets.net/3s5io6mnxfqz/6R1SuUg4ng0zFEAcUjaoO1/e5b55d7b48b4c4e3227ac1532e62b9eb/AdobeStock_112422230.jpeg?w=900&fm=jpg&fl=progressive)
 2. **Basmati Rice**
 - Aromatic, most commonly used in curry
+![Basmati Rice](https://www.authenticroyal.com/wp-content/uploads/2016/11/Basmati_Square.jpg)
 3. **Black Rice**
 - Tastes earthy, contains anthocyanins
+![Black Rice](https://assets.epicurious.com/photos/57b208020e4be0011c1bf087/2:1/w_1260%2Ch_630/chinese-black-rice.jpg)
 4. **Jasmine Rice**
 - Very aromatic, originated in Thailand
+![Jasmine Rice](https://images-prod.healthline.com/hlcmsresource/images/AN_images/jasmine-rice-vs-white-rice-1296x728-feature.jpg)
 
 ## For more Information:
 #### History:
